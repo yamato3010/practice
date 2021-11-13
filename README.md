@@ -1,5 +1,5 @@
 # practice
-yamat
+yamato
 
 sddsfo
 
